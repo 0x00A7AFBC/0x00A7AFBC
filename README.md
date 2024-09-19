@@ -1,5 +1,5 @@
 # 💫 About Me:
-  ╱|.       I use *nyarch* btw~<br>(˚ˎ 。7  <br> |、˜〵          haiii :3c <br>じしˍ,)ノ       **GILF** (not what u think)<br>     --> (G)od I (L)ove (F)emtanyl<br>Furry 🏳️‍⚧️ ☭ o7
+  <span>&#8203;</span>╱|.       I use *nyarch* btw~<br>(˚ˎ 。7  <br> |、˜〵          haiii :3c <br>じしˍ,)ノ       **GILF** (not what u think)<br>     --> (G)od I (L)ove (F)emtanyl<br>Furry 🏳️‍⚧️ ☭ o7
 
 
 # 💻 Tech Stack:
